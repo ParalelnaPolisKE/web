@@ -1,5 +1,5 @@
 ---
-title: AKO SA NESTAŤ ZOMBÍKOM
+title: Ako sa nestať zombíkom
 author: ZEBRA°n
 cover: /assets/zombieobr0.jpeg
 ---
