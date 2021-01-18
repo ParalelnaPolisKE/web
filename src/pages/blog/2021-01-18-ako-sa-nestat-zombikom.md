@@ -61,13 +61,11 @@ Zombíci radi chodia spolu v pomerne **veľkých tlupách**. Do krčiem, na zraz
 
 Davová psychóza je tantrou pre zombíkov. Sú od nej priam závislí. Bez davovej psychózy sú letargický a depresívny. Dav im dodáva potrebnú odvahu a silu. Charakteristické je pre nich taktiež aj to, že majú akési centrálne **spoločné** vedomie, ktoré je často krát ovládané tzv. zombie guru.
 
-![](/assets/zombie-obr5.jpeg)
+![](/assets/zombie-obr5-6.jpeg)
 
-![](/assets/zombie-obr6.jpeg)
+*Obr. 5 : Zombie guru senior v obradnej extáze dohovára zombíkom ako dobre zombíkovať        Obr. 6 : Zombie guru junior - seriózne foto*
 
-*Obr. 5 : Zombie guru senior Obr. 6 : Zombie guru junior*
-
-Zombie guru je obyčajný zombie, ktorému iní zombíci veria, že on im chce len dobre, a vždy im dobre poradí, čo majú robiť, aby dobre urobili. Lebo keď tak aj urobia, zavše sa im to vyplatí.
+Zombie guru je obyčajný zombie, ktorému iní zombíci veria, že on im  chce len dobre, a vždy im dobre poradí, čo majú robiť, aby dobre urobili. Lebo keď tak aj urobia, zavše sa im to vyplatí.
 
 Obšas zvyknú dúfať, že keď sa budú veľmi dobre snažiť, aj z nich sa možno raz stane taký istý zombie guru ako je zombie guru.
 
