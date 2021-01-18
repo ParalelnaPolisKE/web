@@ -111,7 +111,7 @@ Omnoho radšej by som predostrel moju interpretáciu práce a diela človeka, kt
 
 Je to v prvom rade tvorca, autor, učiteľ, vynálezca, dobrodej, umelec a vedec či vývojár, ktorý sa snaží spraviť náš život, lepším krajším a jednoduchším. Je to predovšetkým človek tvoriteľ a stretáme ho na ulici denne rovnako tak ako zombíka.
 
-Súčasná Covidová situácia je ale silným katalyzátorom zmien v spoločnosti a vo svete, akým ešte pred pár rokmi bývali vojny a kolonizačné pohromy. No teraz sa nedeje plánovane a systematicky, ale organicky a decentralizovane. S ľuďmi prichádzame do kontaktu pomenej, no zombík akoby teraz ešte väčšmi ožil.
+Súčasná covidová situácia je ale silným katalyzátorom zmien v spoločnosti a vo svete, akým ešte pred pár rokmi bývali vojny a kolonizačné pohromy. No teraz sa nedeje plánovane a systematicky, ale organicky a decentralizovane. S ľuďmi prichádzame do kontaktu pomenej, no zombík akoby teraz ešte väčšmi ožil.
 
 Akoby presne toto bola voda na jeho mlyn.
 
