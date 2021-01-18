@@ -63,6 +63,8 @@ Davová psychóza je tantrou pre zombíkov. Sú od nej priam závislí. Bez davo
 
 ![](/assets/zombie-obr5.jpeg)
 
+![](/assets/zombie-obr6.jpeg)
+
 *Obr. 5 : Zombie guru senior Obr. 6 : Zombie guru junior*
 
 Zombie guru je obyčajný zombie, ktorému iní zombíci veria, že on im chce len dobre, a vždy im dobre poradí, čo majú robiť, aby dobre urobili. Lebo keď tak aj urobia, zavše sa im to vyplatí.
